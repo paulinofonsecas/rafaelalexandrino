@@ -60,6 +60,9 @@
 &nbsp;
 &nbsp;
 
+## Language / Framework stats
+https://profile.codersrank.io/user/paulinofonsecas/
+
 ## Contacts:
 
 <div> 
